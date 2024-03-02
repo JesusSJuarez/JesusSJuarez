@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JesusSJuarez
+- 👀 I’m interested in VideoGames, Coding and Anime
+- 🌱 I’m currently learning in the "Escuela de Ciencias Uabjo"
